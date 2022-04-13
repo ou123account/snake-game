@@ -7,4 +7,4 @@ please play!!
 ### you can play!
 ![image](https://user-images.githubusercontent.com/100996000/162915405-df8c27d3-45b9-4712-a0bc-66509f5a5698.png)
 
-# ~~I like this game~~
+
